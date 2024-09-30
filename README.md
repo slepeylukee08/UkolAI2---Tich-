@@ -1,0 +1,1 @@
+# jedno-rozm-rn-pole
