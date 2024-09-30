@@ -1,1 +1,1 @@
-# jedno-rozm-rn-pole
+# jedno rozmerne pole
